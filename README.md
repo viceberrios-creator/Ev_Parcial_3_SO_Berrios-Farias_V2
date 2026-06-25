@@ -1,1 +1,0 @@
-# Ev_Parcial_3_SO_Berrios-Farias_V2
